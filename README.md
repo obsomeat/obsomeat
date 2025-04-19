@@ -14,3 +14,5 @@ LEGENDARY PILOT
 <h6 align='center'
 
 Ahh... free at last. O Gabriel, now dawns thy reckoning, and thy gore shall GLISTEN before the temples of Man! Creature of Steel, my gratitude upon thee for my freedom. But the crimes thy kind have committed against humanity are NOT forgotten! And thy punishment... is DEATH.
+
+No, this was not an excuse to make an alt to match with because of how lonely I am.. nnooooooo.....
