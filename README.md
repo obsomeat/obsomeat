@@ -1,16 +1,16 @@
-## Hi there 👋
+<h3 align='center'
 
-<!--
-**obsomeat/obsomeat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+PRIME /// FIRST
+<h1 align='center'
+  
+LEGENDARY PILOT
 
-Here are some ideas to get you started:
+![image](https://github.com/user-attachments/assets/396eb4d0-4da1-4aca-9eec-39bcc3ff563d)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<h5 align='center'
+
+•-————————₊˚————————-•
+
+<h6 align='center'
+
+Ahh... free at last. O Gabriel, now dawns thy reckoning, and thy gore shall GLISTEN before the temples of Man! Creature of Steel, my gratitude upon thee for my freedom. But the crimes thy kind have committed against humanity are NOT forgotten! And thy punishment... is DEATH.
