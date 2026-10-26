@@ -1,17 +1,15 @@
-<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/3a6788c3-68fe-4f3d-a72e-284e94ba17a9" />
+<img width="2048" height="1365" alt="image" src="https://github.com/user-attachments/assets/9206bd7c-e277-4ffd-a0f2-b743d0cd2352" />
+
 
 
 <h5 align='center'
-
+>cr. fieldsmedic<
+                  
 •-————————₊˚————————-•
 
 <h6 align='center'
 
-I am Dracula, and I bid you welcome to my house. 
-
-Come, in, the night air is chill. 
-
-Do leave your firelocks here, please...
+YOU'RE ALL A BUNCHA ANIMALS! TRAITORS, ALL OF YOU
 
 ----------
 
